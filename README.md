@@ -14,8 +14,8 @@ Spam acc⠀⠀⠀⸝⸝⠀⠀⠀⌣⠀⠀⠀18yo</br></div>
 <div align="center">
   
 [ATABOOK](https://lord-starscream.atabook.org)
-<img src="https://64.media.tumblr.com/3d198246a9735fa65318527d59222b99/55bcf22ae0c6529d-54/s75x75_c1/4ec62c33d202bd3830e4feb07f1cfd92d767f161.gifv"> ⠀⠀⟢⠀⠀[STRAWPAGE](https://emperorstarscream.straw.page/)
-<img src="https://64.media.tumblr.com/9d8a9b9ef684be58143f1abd10471023/55bcf22ae0c6529d-8d/s75x75_c1/f60f3251eacc6d5c9538565a5ffccff7d4960513.gifv"/>
+<img src="https://64.media.tumblr.com/017e12c9733a444ada4afe02d7279068/48c4e9c24361783e-81/s75x75_c1/280944938850552baaadac044661f0e2748e53f5.gifv"> ⠀⠀⟢⠀⠀[STRAWPAGE](https://emperorstarscream.straw.page/)
+<img src="https://64.media.tumblr.com/46be16f5bb6faa0d23455245b6513853/48c4e9c24361783e-f7/s75x75_c1/3f5688a3b687be830433963b48ef8a1a5d122381.gifv"/>
 </div> 
 <div align="center">
 <img src="https://64.media.tumblr.com/768633591f47f71ac057ffce670555e0/4be61a34ac3b009d-5e/s640x960/1582d1b160cd1c93fe0444b0f604ca78916f74cb.gifv"/>
@@ -27,4 +27,9 @@ Spam acc⠀⠀⠀⸝⸝⠀⠀⠀⌣⠀⠀⠀18yo</br></div>
 
 <div align="center">
 <img src="https://64.media.tumblr.com/483a5180f07b01c742fa298cf6830e09/1aea274d255e5884-92/s1280x1920/9e71ea7ae0db727857e31d91dc670ef0d35e6b38.pnj"/>
+</div>
+
+<div align="center">
+  
+[credit 1](https://github.com/Citrusjime), [credit 2](https://www.tumblr.com/f0rbiddenh1zumi/772315464131018752/requestz-are-open?source=share), [credit 3](https://www.tumblr.com/oumaholic/813684513679015936/saiouma-rentry-graphics-art-credit-used?source=share), [credit 4](https://www.tumblr.com/fluffettis/771659499618566144/as-always-reblog-like-to-use?source=share), [credit 5](https://www.tumblr.com/bonxichi/759681538480881664/shuishi-saihara-kokichi-ouma?source=share), [credit 6](https://www.tumblr.com/pixelsjar/802076777454452736/piano-theme-checkered-black-and-white?source=share)
 </div>
