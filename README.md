@@ -28,8 +28,3 @@ Spam acc⠀⠀⠀⸝⸝⠀⠀⠀⌣⠀⠀⠀18yo</br></div>
 <div align="center">
 <img src="https://64.media.tumblr.com/483a5180f07b01c742fa298cf6830e09/1aea274d255e5884-92/s1280x1920/9e71ea7ae0db727857e31d91dc670ef0d35e6b38.pnj"/>
 </div>
-
-<div align="center">
-  
-[credit 1](https://github.com/Citrusjime), [credit 2](https://www.tumblr.com/f0rbiddenh1zumi/772315464131018752/requestz-are-open?source=share), [credit 3](https://www.tumblr.com/oumaholic/813684513679015936/saiouma-rentry-graphics-art-credit-used?source=share), [credit 4](https://www.tumblr.com/fluffettis/771659499618566144/as-always-reblog-like-to-use?source=share), [credit 5](https://www.tumblr.com/bonxichi/759681538480881664/shuishi-saihara-kokichi-ouma?source=share), [credit 6](https://www.tumblr.com/pixelsjar/802076777454452736/piano-theme-checkered-black-and-white?source=share)
-</div>
