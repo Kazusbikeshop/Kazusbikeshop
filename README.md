@@ -1,7 +1,9 @@
 <div align="center">
 <img src="https://64.media.tumblr.com/3ce6d10081145cfd94d7a96394189dbe/ec78fc2805c4bd6e-b6/s1280x1920/7c666826ba9ce4027f85ad110d86e3ec7c90599f.pnj"/>
 </div>
-
+<div align="center">
+  <img src="https://64.media.tumblr.com/53d0f396257379503d6dd144fa3ccfc0/c9b7c7d71c560e81-b8/s2048x3072/eef3b90f026543b4c12bd3f9146d6b3105135b97.pnj"/>
+</div>
 <div align="center">
 ◜⠀⠀⠀⠀he⠀⠀⠀⟢⠀⠀they⠀⠀⠀⟢⠀⠀it⠀⠀⠀⠀⟢⠀⠀seek⠀⏖</div>
   <div align="center">
